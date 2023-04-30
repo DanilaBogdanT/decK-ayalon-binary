@@ -1,1 +1,0 @@
-# decK-ayalon-binary
